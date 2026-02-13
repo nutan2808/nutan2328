@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nutan2328
+- 👋 Hi, I’m @nutan28_8
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Diploma in computer engineering 
 - 💞️ I’m looking to collaborate on youtube 

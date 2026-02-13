@@ -2,8 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Diploma in computer engineering 
 - 💞️ I’m looking to collaborate on youtube 
-- 📫 How to reach me by my Email:- nutaan2328@gmail.com
-- 😄 Pronouns: Chhota Don 
+- 📫 How to reach me by my Email:- mnutan39@gmail.com
 - ⚡ Fun fact: I can speak three languages fluently. I am Artist.
 
 <!---
